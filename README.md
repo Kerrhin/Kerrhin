@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Kerrhin
 - 👀 I’m interested in everything
-- 📫 How to reach me Kerrhin#9798
+- 📫 How to reach me on Discord: Kerrhin#9798
